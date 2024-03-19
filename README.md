@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Caritocas
-- 👀 I’m interested in travel, spirituality, coocking,reading leaderships and personal grow book 
+- 👀 I’m interested in ✈️ travel, spirituality, coocking,reading leaderships and personal grow book 
 - 🌱 I’m currently learning front end developer and AI 
 - 💞️ I’m looking to collaborate on blogs, scrum, agile, and front end developer 
 - 📫 How to reach me on my blog  https://acascanteguzman.wixsite.com/todosetratadeti/post/tribu
